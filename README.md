@@ -110,7 +110,7 @@ This repository will evolve as I complete more courses, certifications, exercise
 
 **Yasmine Alaa**
 
-GitHub: [@Yasmine 3laa](https://github.com/Yasmin3laa)
+GitHub: [@Yasmin3laa](https://github.com/Yasmin3laa)
 
 ---
 
